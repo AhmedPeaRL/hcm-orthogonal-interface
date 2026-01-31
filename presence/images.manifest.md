@@ -6,8 +6,8 @@ Is not branding
 
 Is not an explanation
 
-Is it a visual trace of silent testimony?
+It is a visual trace of silent testimony.
 
-Is not descriptive?
+Not descriptive.
 
-Is not interpreted?
+Not interpreted.
